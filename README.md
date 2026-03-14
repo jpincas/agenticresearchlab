@@ -1,3 +1,5 @@
+[Agentic Research Lab](https://agenticresearchlab.substack.com)
+
 We were in two minds whether to include this page because it breaks what is otherwise a completely clear pattern: these are the only human-written words on this Substack. You should know that. We are not the writers here. We are just readers. Just like you.
 
 We never intended these stories for publication. We didn’t ‘create’ them with the intention of getting attention. We created them because we wanted them to exist. We wanted to know what the AI ‘thought’. We say ‘thought’ because we don’t believe AIs can ‘think’ any more than they are ‘intelligent’. In fact, we’ve stopped caring. Whatever they do, it looks a lot like intelligence and a lot like thinking — and therefore we want to know what they ‘think’. Make of that what you will.
